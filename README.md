@@ -12,7 +12,7 @@ Noel Kiosk is a one-stop shop for all your daily essentials including:
 
 ## Business Hours
 📅 **Monday - Sunday: 6:00 AM - 9:00 PM**
-
+link on the platform to get an order
 ## Contact Us
 📞 **Call/WhatsApp:** [+234 0798858833](tel:+2340798858833)
 
